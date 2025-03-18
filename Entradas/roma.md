@@ -16,3 +16,7 @@ Roma es la capital de Italia y una de las ciudades más visitadas del mundo. Es 
 - Foro Romano
 - Barrio judío
 - Teatro de Marcelo
+
+## Foto 
+
+![](https://www.barcelo.com/guia-turismo/wp-content/uploads/que-visitar-en-roma.jpg)
