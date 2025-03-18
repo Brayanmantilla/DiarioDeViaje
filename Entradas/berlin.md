@@ -17,3 +17,11 @@ Berlín, capital alemana, data del siglo XIII. Los elementos que recuerdan la tu
 ## Foto 
 
 ![](https://www.egali.com.mx/wp-content/uploads/sites/3/2018/07/claudio-schwarz-TScGhJM716g-unsplash-1024x683.jpg?x35269)
+
+## Informacion sobre Berlin
+
+- En Berlín existe una Universidad que ha generado 29 premios. 
+- El Muro de Berlín se construyó en una sola noche. 
+- La ciudad, que fue una vez bautizada por su alcalde como «poor but sexy» 
+- Berlín está en constante reconstrucción. 
+- El famoso Donner Kebab se inventó en Berlín.
