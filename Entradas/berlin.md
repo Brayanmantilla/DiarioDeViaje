@@ -13,3 +13,7 @@ Berlín, capital alemana, data del siglo XIII. Los elementos que recuerdan la tu
 - El Tiergarten. 
 - Hofbrau Berlin.
 - Cafés hispter.
+
+## Foto 
+
+![](https://www.egali.com.mx/wp-content/uploads/sites/3/2018/07/claudio-schwarz-TScGhJM716g-unsplash-1024x683.jpg?x35269)
