@@ -14,3 +14,7 @@ Monumentos:
 - Museo del Louvre
 - Museo de Orsay
 - Centro George Pompidou
+
+## Foto
+
+![](https://viajes.nationalgeographic.com.es/medio/2024/06/14/2-paris_12c51497_240614113934_1200x800.jpg)
