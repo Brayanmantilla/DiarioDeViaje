@@ -15,3 +15,7 @@
 - Pedra da Gávea: La roca al pie del mar más grande del mundo 
 - Bahia de Guanabara: Una bahía de la ciudad 
 - Islas Angra dos Reis: Un grupo de islas de la ciudad 
+
+## Foto 
+
+![](https://dynamic-media-cdn.tripadvisor.com/media/photo-o/0c/e4/12/c9/visao-privilegiada.jpg?w=500&h=500&s=1)
