@@ -21,3 +21,8 @@
 4. Parques y Naturaleza
 - Ueno Park: Un gran parque donde puedes ver el Museo Nacional, el Zoológico de Ueno y, si es temporada, disfrutar de los cerezos en flor.
 - Parque Yoyogi: Un espacio tranquilo, ideal para un paseo o picnic. Es conocido por ser un lugar popular para ver actuaciones de música en vivo y otras actividades.
+
+## Foto
+
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQctXdotzJbmHnxAgTQeJoF2dD12wNEUHFINQ&s)
+
