@@ -18,3 +18,6 @@ Qué hacer en Sídney
 
 ![](https://wp-growpro.s3-eu-west-1.amazonaws.com/media/2018/05/Que%CC%81-ver-en-Sydney-1-Opera-House.jpg)
 
+## Mejoras en la redacción o detalles adicionales
+
+Una ciudad portuaria: Sídney está construida en torno al puerto de Sídney, uno de los puertos naturales más bellos del mundo. Un crisol de culturas: Sídney es una ciudad multicultural con habitantes de más de 200 países diferentes, lo que la convierte en un lugar vibrante y diverso.
