@@ -14,3 +14,7 @@ Dubái es una ciudad emirato de los Emiratos Árabes Unidos conocida por su lujo
 - Mezquita de Jumeirah y Mezquita Bastakiya.
 - Palm Jumeirah.
 - Miracle Garden.
+
+## Foto
+
+![](https://queverentusviajes.com/wp-content/uploads/2023/02/Sitios-que-ver-en-Dubai.jpg)
