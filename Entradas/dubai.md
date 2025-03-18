@@ -18,3 +18,16 @@ Dubái es una ciudad emirato de los Emiratos Árabes Unidos conocida por su lujo
 ## Foto
 
 ![](https://queverentusviajes.com/wp-content/uploads/2023/02/Sitios-que-ver-en-Dubai.jpg)
+
+## Informacion sobre dubai
+
+- Es una de las ciudades más lujosas del mundo.
+- Tiene el edificio más alto del mundo, el Burj Khalifa.
+- Tiene el centro comercial más grande del mundo, el Dubai Mall.
+- Tiene el acuario suspendido más grande y el marco de fotos más alto.
+- Tiene islas artificiales que forman el mapamundi.
+- Tiene cajeros automáticos de oro.
+- Tiene policías que conducen Ferraris.
+- Tiene el Burj Al Arab, el único hotel 7 estrellas del mundo.
+- Es un paraíso para los amantes de las aves.
+- Es un lugar donde se comercializa mucho el oro.
