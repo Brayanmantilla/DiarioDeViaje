@@ -26,3 +26,19 @@
 
 ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQctXdotzJbmHnxAgTQeJoF2dD12wNEUHFINQ&s)
 
+## Mejoras en la redacción o detalles adicionales
+
+El silencio japonés
+Los japoneses son extremadamente silenciosos y una de las cosas que más les llama la atención (y menos les gusta) cuando viajan a otros países, sobre todo a España, es lo alto que se habla y lo ruidosa que es su gente.
+
+El gusto por el silencio les lleva al extremo de que en lugares como el metro o los trenes está prohibido utilizar el teléfono móvil para llamar, lo que hace que los japoneses fijen la vista en sus pantallas para jugar o escribir mensajes.
+
+¿Prohibido fumar?
+Sin duda uno de los grandes contrastes que se aprecian en Tokio (y en todo Japón) son las leyes respecto al tabaco. Mientras que en algunas calles y parques está prohibido fumar, hay lugares como los restaurantes donde esta medida no se aplica. Más sorprendente aún es encontrar ciertos vagones para fumadores en los Shinkansen de Tokio a Kioto.
+
+Extremadamente ordenados
+A los japoneses les encanta hacer colas y especialmente respetarlas. No es raro que andando por la calle o en el metro te detengas y la persona que va detrás tuyo se quede esperando a que avances. Les cuesta mucho esquivar obstáculos.
+
+Bares con gatos y alquileres de perros
+Aunque les encantan los animales, los agotadores horarios laborables y las casas extremadamente pequeñas hacen que muchos japoneses opten por no tener mascotas. Como todo tiene solución, para suplir esta carencia muchos recurren a los bares con gatos o a los alquileres de perros.
+
