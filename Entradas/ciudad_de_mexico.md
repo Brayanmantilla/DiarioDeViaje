@@ -22,4 +22,9 @@ Ciudad de México es la densamente poblada capital de México que se encuentra a
 
 ![](https://traveler.marriott.com/es/wp-content/uploads/sites/2/2021/11/Mexico-City-GI-1064279806.jpg)
 
+## Informacion sobre Ciudad de Mexico
 
+- La Ciudad de México fue fundada en 1325 como Tenochtitlán, capital del Imperio Mexica. 
+- Antes de la llegada de los españoles, la ciudad estaba en una isla en medio de un lago. 
+- En 1519, cuando Hernán Cortés llegó a la ciudad, ya era considerada la capital más grande del mundo. 
+- En 1824, después de la independencia de España, se convirtió en el Distrito Federal, nombre que mantuvo hasta 2016. 
