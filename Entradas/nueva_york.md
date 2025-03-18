@@ -13,3 +13,8 @@ Nueva York incluye 5 distritos que se ubican donde el río Hudson desemboca en e
 - Broadway y el Distrito del Teatro. 
 - El Puente de Brooklyn. 
 - El Memorial y Museo del 11 de Septiembre. 
+
+## Foto 
+
+![](https://static.anuevayork.com/wp-content/uploads/2016/10/31155642/Top-20-cosas-que-hacer-en-Nueva-York.jpg)
+
