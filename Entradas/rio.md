@@ -19,3 +19,10 @@
 ## Foto 
 
 ![](https://dynamic-media-cdn.tripadvisor.com/media/photo-o/0c/e4/12/c9/visao-privilegiada.jpg?w=500&h=500&s=1)
+
+## Informacion sobre Rio
+
+- El nombre de Río de Janeiro se originó por un error de navegación de los portugueses. 
+- En realidad, Río de Janeiro es una bahía, pero se le dio ese nombre porque los portugueses pensaron que era la desembocadura de un gran río. 
+- Es uno de los principales centros económicos, de recursos culturales y financieros del país. 
+- Es conocida internacionalmente por sus iconos culturales y paisajes, como el Pan de Azúcar, la estatua del Cristo Redentor, las playas de Copacabana e Ipanema. 
