@@ -17,3 +17,9 @@ Ciudad de México es la densamente poblada capital de México que se encuentra a
 - Museo Nacional de Antropología: Un lugar popular para visitar
 - Estadio Azteca: Un emblemático estadio de fútbol
 - Avenida Masaryk: Un lugar con boutiques, bares y restaurantes
+
+## Foto
+
+![](https://traveler.marriott.com/es/wp-content/uploads/sites/2/2021/11/Mexico-City-GI-1064279806.jpg)
+
+
